@@ -1,2 +1,0 @@
-# rtoys
-toko mainan
